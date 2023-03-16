@@ -57,4 +57,4 @@ This policy is effective as of 2023-03-16
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at sliderzxc@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at qrcodegeneratorway@gmail.com.
